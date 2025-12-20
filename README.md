@@ -1,2 +1,3 @@
-Download here - https://drive.google.com/file/d/1JkhA9w5AXT7h-aqzqu7NSKEEe29uhTx-/view?usp=sharing
-<img width="1398" height="905" alt="изображение" src="https://github.com/user-attachments/assets/20455d70-bee3-4a6f-b119-bc258ad8806e" />
+Download here - 
+<img width="1401" height="896" alt="{FA634CB0-0603-4DC9-A120-569F4BAE0AFB}" src="https://github.com/user-attachments/assets/6908a351-3252-4676-bbba-eca2399cbf9c" />
+
